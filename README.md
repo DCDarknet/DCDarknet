@@ -7,6 +7,8 @@
 
 # See you next year!!!
 
+<--- (Also, please unban my alts on Discord lol) --->
+
 # YOU CAN'T STOP THE SIGNAL
 
   | Category                                                | Question                                  | Answer                                                                                                                                                                                                                                                                                                                     |
